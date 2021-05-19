@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shobuuuu
 - 👀 I’m interested in crypto mining like chia and monero which I am looking into right now.
 - 🌱 I’m currently learning how to mine both of these crypto 
-- 💞️ I’m looking to not looking for collaboration just here for knowledge
+- 💞️ I’m not looking for collaboration just here for knowledge
 - 📫 How to reach me ... @ shobhitchadha@gmail.com
 
 <!---
